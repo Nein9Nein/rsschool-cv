@@ -1,1 +1,1 @@
-https://Nein9Nein.github.io/rsschool-cv/cv
+https://Nein9Nein.github.io/rsschool-cv/
